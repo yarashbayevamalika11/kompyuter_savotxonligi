@@ -1,0 +1,1 @@
+# kompyuter_savotxonligi
